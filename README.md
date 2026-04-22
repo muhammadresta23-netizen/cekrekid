@@ -1,2 +1,0 @@
-# cekrekid
-cekrekfotostudio
